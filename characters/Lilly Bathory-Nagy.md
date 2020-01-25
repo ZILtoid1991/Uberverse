@@ -47,7 +47,7 @@ doctor to get it sorted out. However, this meant that she will get registered in
 diseases and other things due to laws related to healthcare funding.
 
 While it was promised that she will get the results and the eugenics classification within a week, she didn't received anything.
-Instead a cop picked up her up with a car, and took her to a forest. He was supposed to kill her, then frame the murder onto an
+Instead a cop came to her home, picked her up, and took her to a forest. He was supposed to kill her, then frame the murder onto an
 unknown suspect, but he broke down mentally over the whole thing, then Lilly altered his memories to get away from the cop.
 
 ### On the run
