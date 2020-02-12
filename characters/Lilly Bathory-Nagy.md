@@ -7,7 +7,7 @@
 * Eye color: Blue
 * Hair color: White
 * Occupation: Final-year High-school student, entreprenur of a failing company (after father's death, for a few months), 
-Brotherhood member under the name "Selene" (after saving Viktor Szalontai the second time)
+Brotherhood member under the name "Lilith" (after saving Viktor Szalontai the second time)
 * Status as monster: Born to a vampire mother and a powerless father. Has the regular vampire strengths and weaknesses. Other 
 powers include healing (which is most likely her regenerative powers being used on others) and telekinesis.
 * Other abilities: Lock picking, hacking security systems, martial arts.
