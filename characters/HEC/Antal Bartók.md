@@ -2,6 +2,7 @@
 
 * Full name in western order: Antal János Bartók
 * Date of Birth: 06.Jun.1956
+* Date of Death: 19.Oct.2010
 * Ethnicity: Hungarian
 * Hair color: White
 * Occupation: Hungarian Eugenics Committee agent
@@ -36,3 +37,23 @@ wanted to follow his footstep of becoming a beaucrat that surveils
 ethnic minorities. When Hungarian Eugenics Committee was created during 
 the liberalization, he became one of earliest applicants and goes around 
 collecting DNA samples from various people.
+
+Despite the sciences resolving around the übermensch, he was a firm 
+believer that that can be bred out, so he often conducted research on
+the collected DNA samples. He published around 3 books on the subject
+by the year 2000, but he was never really taken seriously, and the
+studies were littered with errors.
+
+In the year 2000, when the Hungarian wings of White Dawn were formed,
+he put his anti-übermensch away in order to "unite against the 
+Neobolshevik cabal", but viewed it as a "bother that must be tolerated 
+until the victory". By that time, his disdain of the übermensch was also
+much more out of jealousy rather than anything else.
+
+# Battle against the Titan Group
+
+# Death
+
+He died in the attack on HEC headquarters while trying to protect the
+data against the intruders. He was killed by a stray bullet, which was
+redirected by Lilly Báthory-Nagy.
